@@ -1,1 +1,1 @@
-![7H30D0R](https://streak-stats.demolab.com?user=7H30D0R&theme=dark&border_radius=&card_width=)
+![7H30D0R](https://streak-stats.demolab.com?user=7H30D0R&theme=dark)
